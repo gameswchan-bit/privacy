@@ -27,4 +27,4 @@ Your order details are shared with the restaurant/restaurant chain preparing you
 Your account and order history are kept while your account is active. You may request deletion by contacting us.
 
 ## Contact
-Questions about this policy? Email: **you@gmail.com**
+Questions about this policy? Email: **games.wchan@gmail.com**
